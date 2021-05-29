@@ -1,1 +1,0 @@
-# colorfulmemory-com.github.io
